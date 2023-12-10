@@ -1,4 +1,6 @@
 ### Hi there 👋
+I am a terraria server owner join! zyrafak.com port 7777
+Please join my discord server! https://discord.gg/bZxyTVUP5g
 
 [![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/U7U8RZBJF)
 <!--
