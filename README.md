@@ -1,4 +1,5 @@
 ### Hi there 👋
-Please join my discord server! https://discord.zyrafaq.com
 
 [My website](https://zyrafaq.com)
+[My ko-fi page](https://ko-fi.com/zyrafaq)
+[My discord server](https://discord.com/invite/bZxyTVUP5g)
